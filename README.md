@@ -2,3 +2,4 @@ Bamyan (Dari: بامیان), also spelled Bamiyan or Bamian, is the capital of B
 
 
 # what about Mazar i sharif , can u please explain ....
+Mazar-i-Sharīf (/məˈzæri ʃəˈriːf/ mə-ZARR-ee shə-REEF; Dari and Pashto: مزار شریف), also known as Mazar-e Sharīf or simply Mazar, is the fourth-largest city in Afghanistan by population, with an estimated 500,207 residents in 2021.[1] It is the capital of Balkh province and is linked by highways with Kunduz in the east, Kabul in the southeast, Herat in the southwest and Termez, Uzbekistan in the north. It is about 55 km (34 mi) from the Uzbek border. The city is also a tourist attraction because of its famous shrines as well as the Islamic and Hellenistic archeological sites. The ancient city of Balkh is also nearby.
